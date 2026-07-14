@@ -22,8 +22,8 @@
 
 📫 Reach Me
 
-- Email: your-email@gmail.com
-- LinkedIn: https://linkedin.com/in/your-linkedin
+- Email: prajwalpammar06@gmail.com
+- LinkedIn: https://www.linkedin.com/in/prajwal-pammar-a27a56305/
 
 ---
 
